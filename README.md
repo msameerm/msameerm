@@ -2,7 +2,7 @@
 - 👀 I’m Not interested in Anything
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Some shits
-- 📫 How to reach me (Don't try Reach me)
+- 📫 (Don't to try Reach me)
 - 😄 Pronouns: Sa-meer
 - ⚡ Fun fact: No Fun Fact
 
